@@ -1,1 +1,0 @@
-# Designers: Infusing more user interaction as a designer
